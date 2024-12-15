@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @paaslie
-- 🌱 I’m currently learning programming 
+- 🌱 I’m currently educating in programming and business 
 - 📫 paaslie@hotmail.com
 
